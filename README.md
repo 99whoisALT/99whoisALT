@@ -12,6 +12,8 @@ i am the good guy on the spaceship that complete all the tasks my goal is to com
 i own:
 
 <img width="1516" height="845" alt="Untitled156_20240218225150" src="https://github.com/user-attachments/assets/522e8297-7e09-4f31-93d8-f1db8a6d5644" />
+(fight neil classic that is)
+
 and:
 
 <img width="800" height="600" alt="whois_games_logo_remastered" src="https://github.com/user-attachments/assets/ba5b8cfd-c1a8-433e-af81-3bdd377c4763" />
